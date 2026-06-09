@@ -1,4 +1,4 @@
-#  
+#  rare Scripts for grow a garden offers the most advanced grow a garden Script, with custom skins and instant win. Perfect for dominating any match.
 
 
 
